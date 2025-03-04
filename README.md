@@ -2,7 +2,7 @@
 - 👀 I’m interested in 
 - 🌱 I’m currently learning ..ftyhujkl
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me ...nmdsfthjtydj
+- 📫 How to reach me ...qwerftigy
 - 😄 Pronouns: huhuheh
 - ⚡ Fun fact: odfjoewigktep
 Sergarito/Sergarito is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
