@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Sergarito))
 - 👀 I’m interested in 
-- 🌱 I’m currently learning ..ftyhujkl
+- 🌱 I’m currently learning ..cyukbgukl
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...bgfrtrgyuio
 - 😄 Pronouns: huhuheh
